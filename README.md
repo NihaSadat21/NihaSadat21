@@ -1,4 +1,4 @@
-# **👋 Hi, I’m Shamaila Sadat Niha**
+# **👋 Hi, I’m Shamaila**
 
 ## **🎓 CSE Student at BRAC University**
 
